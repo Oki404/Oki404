@@ -1,7 +1,5 @@
 Hello. I'm new at coding. You can help me any time! (or i can help you)
 
-umm.. for special reasons, im at winbruh for a while.
-
 GNU/Linux is not a OS. It's a life style.
 
 Here's my stats:
